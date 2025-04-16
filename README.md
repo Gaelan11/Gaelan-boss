@@ -1,0 +1,2 @@
+# Gaelan-boss
+EUR/USD
